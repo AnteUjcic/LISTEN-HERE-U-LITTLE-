@@ -1,2 +1,2 @@
 # LISTEN-HERE-U-LITTLE-
-IDK MY CAPS IS ON 
+pliz stop calling me gay
